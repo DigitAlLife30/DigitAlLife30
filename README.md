@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on everybody's success
 - 📫 How to reach me instagram: @just_codit
 - 😄 Pronouns: him he you
-- ⚡ Fun fact: I love learning but I hat school 😄😄
+- ⚡ Fun fact: I love learning but I hate school 😄😄
